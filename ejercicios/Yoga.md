@@ -12,3 +12,9 @@ La practica del Yoga trae consigo diferentes beneficios, pues estos ejercicios c
 - Aumento progresivo en la flexibilidad 
 - Posibilidad de alcanzar un estado superior (Nirvana)
 - Constante mejora en el humor y la actitud
+
+## Instrucciones
+
+- Realice los ejercicios deseados de una manera lenta y progresiva, esto  con el fin de evitar lesiones en nuestro ligamentos y músculos
+- Tras realizar la rutina deseada tómese un tiempo de meditación y relajación este tiempo debe durar al menos 15 min con esto lograremos mantener un estado de animo mejor y le daremos tiempo a nuestro cuerpo a volver a su estado natural y no mantenerse tan laxo. 
+
