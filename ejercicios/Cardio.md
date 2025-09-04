@@ -19,3 +19,12 @@ La practica constante del cardio nos puede traer diversos beneficios muy importa
 - Inicia con un pequeño calentamiento
 - Realiza un ejercicio de intensidad media pero larga duración (Trotar en pendiente, o realizar ciclismo de montaña) durante un mínimo de 45 min
 - Realiza un ejercicio de enfriamiento junto a un estiramiento enfocado en los ejercicios que realizaste
+
+
+
+## Consejos
+
+- Mantener una hidratación constante con el fin de no deshidratarnos
+- No trotar o hacer ciclismo durante una hora de calor
+- Respetar nuestro limites corporales
+- Hacer estas practicas en vías no circuladas 
