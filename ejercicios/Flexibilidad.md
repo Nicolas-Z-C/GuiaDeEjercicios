@@ -13,3 +13,15 @@ El desarrollo de ejercicios enfocados en la flexibilidad tiene como objetivo mej
 - Prevención de futuras lesiones
 - Aumento en la flexibilidad de los grupos musculares trabajados 
 - Mejor calidad de vida
+
+
+
+## Instrucciones
+
+- Realice un estiramiento previo al desarrollo de la actividad o rutina
+
+- Realice la rutina, siempre teniendo en cuenta nuestro limites físicos y alineándolos con estos
+
+- Tras el desarrollo de la rutina descanse durante al menos 5 min
+
+  
