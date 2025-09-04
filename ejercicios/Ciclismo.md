@@ -15,3 +15,12 @@ La practica del ciclismo es una de las mas populares en Colombia, esta se caract
 - Aumento de la masa muscular 
 - Aumento en la potencia muscular de nuestro tren inferior 
 - Aumento en la estabilidad de nuestra sección abdominal
+
+
+
+## Instrucciones
+
+- Realizar un calentamiento y lubricación de nuestro tren inferior
+- Empezar a realizar pequeños Sprints dentro del velódromo
+- Realizar carreras de larga duración 
+- Terminar con un enfriamiento de 5 min junto a un estiramiento post-entrenamiento
