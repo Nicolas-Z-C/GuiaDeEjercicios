@@ -15,3 +15,11 @@ Este sistema de entrenamiento se caracteriza por combinar diversos ejercicios co
 - Tonificación equilibrada del musculo trabajado 
 - Milfs
 - Aumento de la capacidad de concentración
+
+
+
+## Instrucciones
+
+- Realice un calentamiento cardiovascular y muscular corto (5-8 min)
+- Realice los ejercicios personalizados, ya sea con o sin equipo especializado con un descanso de máximo 45 seg entre ejercicios
+- Al finalizar realice una ronda de ejercicios de enfriamiento y estiramiento
