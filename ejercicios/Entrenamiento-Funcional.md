@@ -22,3 +22,9 @@ La practica de entrenamientos funcionales puede ser muy beneficiosa sobretodo pa
 - Realizar un estiramiento y enfriamiento de la zona muscular trabajada
 
   
+
+## Consejos
+
+- Mantener una hidratación constante en caso de que el ejercicio a realizar sea cardiovascular
+- No exceder nuestro limites, sobretodo si estamos rehabilitando una parte del cuerpo
+- Realizar los ejercicios con el máximo cuidado posible, esto con el fin de evitar lesiones durante el entrenamiento
