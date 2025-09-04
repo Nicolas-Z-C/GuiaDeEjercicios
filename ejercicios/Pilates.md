@@ -8,3 +8,10 @@ Este sistema de entrenamiento se caracteriza por combinar diversos ejercicios co
 
 
 
+## Beneficios 
+
+- Aumento de la masa muscular
+- Aumento de la fuerza física
+- Tonificación equilibrada del musculo trabajado 
+- Milfs
+- Aumento de la capacidad de concentración
