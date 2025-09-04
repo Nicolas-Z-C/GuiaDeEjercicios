@@ -19,9 +19,12 @@ El desarrollo de ejercicios enfocados en la flexibilidad tiene como objetivo mej
 ## Instrucciones
 
 - Realice un estiramiento previo al desarrollo de la actividad o rutina
-
 - Realice la rutina, siempre teniendo en cuenta nuestro limites físicos y alineándolos con estos
+- Tras el desarrollo de la rutina descanse durante al menos 5 min  
 
-- Tras el desarrollo de la rutina descanse durante al menos 5 min
 
-  
+
+## Consejos
+
+- Mantener nuestros limites previos en mente, esto con el fin de evitar desgarrar nuestro músculos 
+- Mantenernos en un margen seguro, no siempre es necesario llevar nuestro cuerpo al limite de su flexibilidad
