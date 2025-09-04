@@ -24,3 +24,12 @@ La practica del ciclismo es una de las mas populares en Colombia, esta se caract
 - Empezar a realizar pequeños Sprints dentro del velódromo
 - Realizar carreras de larga duración 
 - Terminar con un enfriamiento de 5 min junto a un estiramiento post-entrenamiento
+
+
+
+## Consejos
+
+- No iniciar con una relacion demasiado alta para nuestro cuerpo
+- Respetar nuestro limites corporales
+- No realizar la practica en mojado
+- Mantener una hidratación constante
