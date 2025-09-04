@@ -25,3 +25,12 @@ La practica del boxeo como un ejercicio de acondicionamiento físico nos trae di
 1. Realizar un calentamiento corto de 5-10 min, este puede ser una actividad de cardio como saltar la cuerda o trotar 
 2. Realiza la actividad de tu preferencia (Golpear el saco, hacer sombra o escuela en caso de contar con un compañero de entrenamiento) esta debe durar al menos 5 rounds de 5 minutos, con un descanso máximo de 35 segundos
 3. Al terminar realiza un estiramiento y una actividad de cardio de máximo 3 minutos
+
+
+
+## Consejos
+
+- Mantente hidratado constantemente
+- Haz uso de protecciones adecuadas (Guantes, Careta y Bucal)
+- No sobres fuerces tu cuerpo
+- Mantén un rango de fuerza física sostenible (50%-70%)
