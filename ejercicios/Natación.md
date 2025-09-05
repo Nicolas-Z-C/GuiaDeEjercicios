@@ -16,5 +16,13 @@ La practica de la natación como un deporte o como una forma de mantener nuestro
 
 
 
+## Instrucciones 
+
+- Antes de iniciar el entrenamiento principal, realice unos cuantos metro de calentamiento en el estilo que desee
+- Tras calentar inicie el entrenamiento principal
+- Al finalizar el ejercicio principal realice diferentes ejercicios de enfriamiento
+
+
+
 
 
