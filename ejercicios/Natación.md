@@ -24,5 +24,13 @@ La practica de la natación como un deporte o como una forma de mantener nuestro
 
 
 
+## Consejos 
+
+- Manténgase hidratado 
+- Antes y después del entrenamiento consuma comestibles ricos en potasio
+- Evite sobre esforzar su cuerpo
+
+
+
 
 
